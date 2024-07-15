@@ -2,7 +2,7 @@
 - 👀 I’m interested in working with dynamo for Civil 3D
 - 🌱 I’m currently learning dynamobim
 - 💞️ I’m looking to collaborate on ?
-- 📫 How to reach me: tom.weinstein@jacobs.com
+- 📫 How to reach me: tom.weinstein@jacobs.com https://www.linkedin.com/in/tomweinstein/
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: 
 
